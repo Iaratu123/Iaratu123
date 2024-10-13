@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Iaratu123
+- 👀 I’m interested in videogames
+- 🌱 I’m currently learning progams
+- 💞️ I’m looking to collaborate on games
+- 📫 How to reach me gmail
+- 😄 Pronouns: She
+- ⚡ Fun fact: I'am a soccer player
